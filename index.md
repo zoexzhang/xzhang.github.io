@@ -14,7 +14,7 @@ Bachelor in Economic Statistics
 
 
 
-<img src="/photo.jpg" width="50%">
+
 
 
 
